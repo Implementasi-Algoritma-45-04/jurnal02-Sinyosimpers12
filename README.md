@@ -2,4 +2,4 @@
 
 NIM: 6706213075
 
-Nama: Sinyo Simpers Soba
+Nama: SINYO SIMPERS SOBA
